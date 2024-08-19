@@ -1,1 +1,2 @@
 # arula3
+![](https://www.google.com/imgres?q=meme&imgurl=https%3A%2F%2Fwww.sescsp.org.br%2Fwp-content%2Fuploads%2F2024%2F03%2Fscorsese-800x425.jpeg&imgrefurl=https%3A%2F%2Fwww.sescsp.org.br%2Feditorial%2Fo-cinema-e-pop-ou-o-que-um-meme-pode-fazer-pela-popularidade-de-um-filme%2F&docid=i8e6g1q6hFTuqM&tbnid=5fw28rVYYuMFtM&vet=12ahUKEwiK3PPb7YCIAxWspZUCHX8_GZAQM3oECG4QAA..i&w=800&h=425&hcb=2&ved=2ahUKEwiK3PPb7YCIAxWspZUCHX8_GZAQM3oECG4QAA)
